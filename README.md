@@ -1,1 +1,0 @@
-# joepulido.github.io
